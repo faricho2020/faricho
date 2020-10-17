@@ -1,0 +1,2 @@
+# faricho
+freedom mind
